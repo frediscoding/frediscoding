@@ -15,4 +15,4 @@ Aku juga tertarik di bidang UI design (untuk UX research sejujurnya kurang enjoy
 
 # Let's Connect!
 Linkedin: https://www.linkedin.com/in/fidelya-fredelina-4521b024b/ \
-Instagram: https://www.instagram.com/fsharpminor_ 
+Instagram: instagram.com/fsharpminor_
